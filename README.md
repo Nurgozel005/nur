@@ -1,2 +1,2 @@
-# nur
+#............
 INTRA KOD BERAYIN ZERUR GEREKDI
